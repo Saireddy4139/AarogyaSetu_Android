@@ -1,7 +1,6 @@
 ---------------------------------
 Government Leadership
 ---------------------------------
-
 Narendra Modi  
 Dr. Harsh Vardhan  
 Prof K  VijayRaghavan  
